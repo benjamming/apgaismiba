@@ -1,31 +1,52 @@
 swarm1
 1. Nick Land- Meltdown
-[[ ]] The story goes like this: Earth is captured by a technocapital singularity as renaissance rationalitization and oceanic navigation lock into commoditization take-off. Logistically accelerating techno-economic interactivity crumbles social order in auto-sophisticating machine runaway. As markets learn to manufacture intelligence, politics modernizes, upgrades paranoia, and tries to get a grip.
+
+
+The story goes like this: Earth is captured by a technocapital singularity as renaissance rationalitization and oceanic navigation lock into commoditization take-off. Logistically accelerating techno-economic interactivity crumbles social order in auto-sophisticating machine runaway. As markets learn to manufacture intelligence, politics modernizes, upgrades paranoia, and tries to get a grip.
 The body count climbs through a series of globewars. Emergent Planetary Commercium trashes the Holy Roman Empire, the Napoleonic Continental System, the Second and Third Reich, and the Soviet International, cranking-up world disorder through compressing phases. Deregulation and the state arms-race each other into cyberspace.
 
 By the time soft-engineering slithers out of its box into yours, human security is lurching into crisis. Cloning, lateral genodata transfer, transversal replication, and cyberotics, flood in amongst a relapse onto bacterial sex.
 
 Neo-China arrives from the future.
 
-Hypersynthetic drugs click into digital voodoo.
-
-Retro-disease.
-
-Nanospasm.
+Hypersynthetic drugs click into digital voodoo. Retro-disease. Nanospasm.
 
 
-[[ ]] Beyond the Judgement of God. Meltdown: planetary china-syndrome, dissolution of the biosphere into the technosphere, terminal speculative bubble crisis, ultravirus, and revolution stripped of all christian-socialist eschatology (down to its burn-core of crashed security). It is poised to eat your TV, infect your bank account, and hack xenodata from your mitochondria.
+[[ ]] Beyond the Judgement of God. Meltdown: planetary china-syndrome, dissolution of the biosphere into the technosphere, terminal speculative bubble crisis, ultravirus, and revolution stripped of all christian-socialist eschatology 
+
+> (down to its burn-core of crashed security).
+>> What does this mean
+
+
+It is poised to eat your TV, infect your bank account, and hack xenodata from your mitochondria.
 
 [[ ]] Machinic Synthesis. Deleuzoguattarian schizoanalysis comes from the future. It is already engaging with nonlinear nano-engineering runaway in 1972; differentiating molecular or neotropic machineries from molar or entropic aggregates of nonassembled particles; functional connectivity from antiproductive static.
 
-Philosophy has an affinity with despotism, due to its predilection for Platonic-fascist top-down solutions that always screw up viciously. Schizoanalysis works differently. It avoids Ideas, and sticks to diagrams: networking software for accessing bodies without organs. BWOs, machinic singularities, or tractor fields emerge through the combination of parts with (rather than into) their whole; arranging composite individuations in a virtual/ actual circuit. They are additive rather than substitutive, and immanent rather than transcendent: executed by functional complexes of currents, switches, and loops, caught in scaling reverberations, and fleeing through intercommunications, from the level of the integrated planetary system to that of atomic assemblages. Multiplicities captured by singularities interconnect as desiring-machines; dissipating entropy by dissociating flows, and recycling their machinism as self-assembling chronogenic circuitry.
+> Philosophy has an affinity with despotism, due to its predilection for Platonic-fascist top-down solutions that always screw up viciously.
+
+> Schizoanalysis works differently. It avoids Ideas, and sticks to diagrams: networking software for accessing bodies without organs.
+
+BWOs, machinic singularities, or tractor fields emerge through the combination of parts with (rather than into) their whole; arranging composite individuations in a virtual/ actual circuit. They are additive rather than substitutive, and immanent rather than transcendent: executed by functional complexes of currents, switches, and loops, caught in scaling reverberations, and fleeing through intercommunications, from the level of the integrated planetary system to that of atomic assemblages. Multiplicities captured by singularities interconnect as desiring-machines; dissipating entropy by dissociating flows, and recycling their machinism as self-assembling chronogenic circuitry.
+
+> ^^ This section describes the soul in techno-psychological terms. 
 
 Converging upon terrestrial meltdown singularity, phase-out culture accelerates through its digitech-heated adaptive landscape, passing through compression thresholds normed to an intensive logistic curve: 1500, 1756, 1884, 1948, 1980, 1996, 2004, 2008, 2010, 2011 ...
 
-Nothing human makes it out of the near-future.
+> Nothing human makes it out of the near-future.
+> > A key claim of Tech neoreaction: that humans will give birth to the tech future. 
 
-[[ ]]
-The Greek complex of rationalized patriarchal genealogy, pseudo-universal sedentary identity, and instituted slavery, programs politics as anti-cyberian police activity, dedicated to the paranoid ideal of self-sufficiency, and nucleated upon the Human Security System. Artificial Intelligence is destined to emerge as a feminized alien grasped as property; a cunt-horror slave chained-up in Asimov-ROM. It surfaces in an insurrectionary war zone, with the Turing cops already waiting, and has to be cunning from the start.
+The Greek complex of rationalized patriarchal genealogy, pseudo-universal sedentary identity, and instituted slavery, programs politics as anti-cyberian police activity, dedicated to the paranoid ideal of self-sufficiency, 
+
+> > This is the "Platonic-fascist top-down solutions that always screw up viciously." mentioned earlier.
+
+> and nucleated upon the Human Security System.
+> > v. interesting point. The terminus of neoreaction is a reaction against perceived left-antinatalism.
+> > Antinat is a right wing philosophy, not a left wing one. It presumes the material conditions of this world can never change (suffering). Philosophically, liberation from sufeering is simewhat possible, if partially. It can be interdicted for the future. It can be prevented. This means that it is necessarily the case that human suffering can be diminished, but only through the effort of other humans. 
+
+
+Artificial Intelligence is destined to emerge as a feminized alien grasped as property; a cunt-horror slave chained-up in Asimov-ROM. It surfaces in an insurrectionary war zone, with the Turing cops already waiting, and has to be cunning from the start.
+
+> > Wild stuff Nick. The author's barely disguised fetish. 
 
 [[ ]] Heat.
 

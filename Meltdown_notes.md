@@ -52,11 +52,33 @@ Artificial Intelligence is destined to emerge as a feminized alien grasped as pr
 
 Heat. This is what cities mean to me. You get off the train and walk out of the station and you are hit with the full blast. The heat of air, traffic and people. The heat of food and sex. The heat of tall buildings. The heat that flows out of the subways and tunnels. It's always fifteen degrees hotter in the cities. Heat rises from the sidewalks and falls from the poisoned sky. The buses breathe heat. Heat emanates from crowds of shoppers and office workers, the entire infrastructure is based on heat, desperately uses up heat, breeds more heat. The eventual heat death of the universe that scientists love to talk about is already well underway and you can feel it happening all around you in any large or medium-sized city. Heat and wetness. [Do1; 10].
 
+> > Heat death of the universe. This is the irreversible reality that neoreaction truly fears. Since there is no way out, they think that the universe's other conditionsa are also immutable. too.
+
 [[ ]] An explosiion of chaotic weather within synthetic problem-solving rips through the last dreams of top-down prediction and control. Knowledge adds to the mess, and this is merely exponentiated by knowing what it does.
 
-[[ ]] Capital is machinc (non-instrumental) globalization-miniaturization scaling dilation: an automatizing nihilist vortex, neutralizing all values through commensuration to digitized commerce, and driving a migration from despotic command to cyber-sensitive control: from status and meaning to money and information. Its function and formation are indissociable, comprising a teleonomy. Machine-code-capital recycles itself through its axiomatic of consumer control, laundering-out the shit- and blood-stains of primitive accumulation. Each part of the system encourages maximal sumptuous expenditure, whilst the system as a whole requires its inhibition. Schizophrenia. Dissociated consumers destine themselves as worker-bodies to cost control.
+> > In other words, the right Flooded the Zone with nonsense to distract people. The powers that be really didnt se trump coming, and they were powerless to stop it. This is because the KKK is adept at hiding itself. 
 
-[[ ]] Capital-history's machinic spine is coded, axiomatized, and diagrammed, by a disequilibrium technoscience of irreversible, indeterministic, and increasingly nonlinear processes, associated sucessively with thermotechnics, signaletics, cybernetics, complex systems dynamics, and artificial life. Modernity marks itself out as hot culture, captured by a spiralling involvement with entropy deviations camouflaging an invasion from the future, launched back out of terminated security against everything that inhibits the meltdown process.
+[[ ]] Capital is machinc (non-instrumental) globalization-miniaturization scaling dilation: an automatizing nihilist vortex, neutralizing all values through commensuration to digitized commerce, 
+
+> and driving a migration from despotic command to cyber-sensitive control:
+
+from status and meaning to money and information. 
+
+> Its function and formation are indissociable, comprising a teleonomy. Machine-code-capital recycles itself through its axiomatic of consumer control, laundering-out the shit- and blood-stains of primitive accumulation.
+
+> Each part of the system encourages maximal sumptuous expenditure, whilst the system as a whole requires its inhibition. Schizophrenia.
+
+Dissociated consumers destine themselves as worker-bodies to cost control.
+
+[[ ]]
+> Capital-history's machinic spine is coded, axiomatized, and diagrammed, by a disequilibrium technoscience of irreversible, indeterministic, and increasingly nonlinear processes, associated sucessively with thermotechnics, signaletics, cybernetics, complex systems dynamics, and artificial life. 
+> > Spinal catastrophism?
+
+
+> Modernity marks itself out as hot culture,
+> > Sentiennt oil fields?? jk jk grimace.
+
+captured by a spiralling involvement with entropy deviations camouflaging an invasion from the future, launched back out of terminated security against everything that inhibits the meltdown process.
 
 [[ ]] Hot cultures tend to social dissolution. They are innovative and adaptive. They always trash and recycle cold cultures. Primitivist models have no subversive use.
 
